@@ -34,7 +34,7 @@ A sha
 8. Sprinkle the grated parmesan over the top.
 9. Place the dish in the oven on the top shelf and cook for about 45 minutes, or until the top is lightly browned and the sauce is bubbling.
 ## Hints & tips
-* Get good beef. This is the most important part of the dish. The best beef will produce little fat and a great flavour.
+* Get "good" beef. This is the most important part of the dish. The best beef will produce little fat and a great flavour.
 * Try using goats cheese and milk for the béchamel sauce. Sainsbury's and Safeways both sell a goat's cheese that's almost like cheddar in consistency. Perfect for béchamel sauce.
 * Look for canned tomatoes in 'rich tomato juice'. They're a bit more expensive, but definitely worthwhile
 * Fresh basil and pepper are a must.
