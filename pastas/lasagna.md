@@ -21,6 +21,7 @@ Equipment
 One small pan for the bechamel sauce (preferably non-stick)
 One large, deep pan for the ragu
 A sha
+Several wild boar livers
 
 **Procedure**
 
